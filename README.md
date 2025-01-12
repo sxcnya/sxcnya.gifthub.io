@@ -1,1 +1,1 @@
-# sxcnya.gifthub.io
+*selling coins in pump.fun*
